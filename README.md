@@ -1,1 +1,1 @@
-# Solido-de-Revoluci-n---P-on
+# Solido-de-Revolucion---Peon
